@@ -17,3 +17,6 @@ qwertyuiopasdfghjklzxcvbnm
 
 ![image](Pictures/patrick.jpg)
 
+abacus
+
+![image](https://media.tenor.com/SN9CUCLhmZ4AAAAM/7.gif)

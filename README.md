@@ -8,3 +8,4 @@ qwertyuiopasdfghjklzxcvbnm
 ![Patrick Bateman](Pictures/Patrick.jpg)
 
 ![image](https://github.com/user-attachments/assets/660c1218-57e2-4706-a70b-5f72083df1d7)
+https://media.tenor.com/KrGPtslH9bUAAAAM/rock.gif

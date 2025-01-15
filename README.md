@@ -4,3 +4,5 @@ Humongus Balls (too big in fact => probably have cancer mate should get that loo
 
 abcdefghijklmnopqrstuvwxyz
 qwertyuiopasdfghjklzxcvbnm
+
+![Patrick Bateman](Pictures/Patrick.jpg)

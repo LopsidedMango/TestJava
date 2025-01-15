@@ -4,6 +4,10 @@
 
 Test java project
 
+![image](https://media.tenor.com/zVQrVriwCFkAAAAM/bald-guy-drinks-orange-juice.gif)
+
+![image](https://media.tenor.com/IvBIKwbv6VIAAAAM/orange-juice-meme-orange-juice.gif)
+
 ![image](https://github.com/user-attachments/assets/a39f1ef9-121f-4d92-bef0-c322daf482ed)
 
 Humongus Balls (too big in fact => probably have cancer mate should get that looked at)

@@ -6,6 +6,8 @@ Humongus Balls (too big in fact => probably have cancer mate should get that loo
 ![image](https://media.tenor.com/KrGPtslH9bUAAAAM/rock.gif)
 
 abcdefghijklmnopqrstuvwxyz
+![image](https://github.com/user-attachments/assets/c47c2a0e-4f86-48c3-b729-fda02f5c1e0c)
+
 qwertyuiopasdfghjklzxcvbnm
 
 ![image](Pictures/patrick.jpg)

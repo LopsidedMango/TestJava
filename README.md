@@ -23,7 +23,7 @@ abcdefghijklmnopqrstuvwxyz
 ![image](https://github.com/user-attachments/assets/c47c2a0e-4f86-48c3-b729-fda02f5c1e0c)
 qwertyuiopasdfghjklzxcvbnm
 ![image](Pictures/patrick.jpg)
-![image](https://media4.giphy.com/media/joYf3Ba2phD15ch9Nt/giphy.gif?cid=6c09b952b5308xt7uo6di4935j6v6ps9dvr59j1g1fjak2bw&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+[https://media4.giphy.com/media/joYf3Ba2phD15ch9Nt/giphy.gif?cid=6c09b952b5308xt7uo6di4935j6v6ps9dvr59j1g1fjak2bw&ep=v1_gifs_search&rid=giphy.gif&ct=g](https://youtu.be/vcZRDvh3ddE?si=v66TLnwPY9EzmpOl)
 abacus
 ![image](https://media.tenor.com/SN9CUCLhmZ4AAAAM/7.gif)
 ![raw](https://www.youtube.com/watch?v=vcZRDvh3ddE)
